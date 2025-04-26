@@ -14,7 +14,7 @@
 
 - 📫 How to reach me: **a_singh09@yahoo.com**
 
-- 📄 [View my Resume](https://drive.google.com/file/d/1xamfxrZ2iF2eEMeVkbuNyBkop6IkNVQz/view?usp=share_link)
+- 📄 [View my Resume](https://drive.google.com/file/d/1Nc1RkrP-wgEfC0R-QTS3CjlO9I0wNp6d/view?usp=share_link)
 
 - ⚡ Fun fact: **"Creating solutions one block at a time!"**
 
